@@ -1,2 +1,2 @@
-# Warung-Ayam-Penyet-Maju-Mapan
-Nikmati Ayam Penyet dan Nasi Goreng spesial dengan bumbu rahasia turun temurun.
+# MUARA JAYA
+Cita Rasa Nusantara Dalam Setiap Suapan
